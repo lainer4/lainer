@@ -1,0 +1,1 @@
+este proyecto contiene mi hoja de vida y es un trabajo de next-U y estoy estudiado hay
